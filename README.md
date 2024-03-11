@@ -1,1 +1,1 @@
-apa
+ayang aku baukk
